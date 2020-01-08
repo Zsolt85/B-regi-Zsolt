@@ -1,1 +1,1 @@
-# B-regi-Zsolt
+# Béregi Zsolt
